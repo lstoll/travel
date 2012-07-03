@@ -1,5 +1,0 @@
-# Nashville
-
-## Dining
-
-## Drinking
